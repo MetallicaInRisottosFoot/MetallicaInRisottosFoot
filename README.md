@@ -20,7 +20,7 @@ i block freely ok?ok!
 
 me btw
 
-thats it i think
+thats it i think check rentry for more
 
 </details>
 
