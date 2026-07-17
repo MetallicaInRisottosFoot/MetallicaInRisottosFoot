@@ -14,6 +14,8 @@ if u found me through this github i prefer to be called risotto, but i also go b
 
 taken by my !!!!!!husband dont be weird ok
 
+i dont have a huge dni but dooo NOT interact if you use sch*zo casually , its a slur towards schizospec people and most people who throw it around on here are probably NOT !! schizospec , also if you use calling someone schizophrenic as an insult or a joke sorry ultra woke but its disrespectful lmaoo!!
+
 i block freely ok?ok!
 
 ![](https://i.ibb.co/s959Pfp4/risottooooo-1.png)
