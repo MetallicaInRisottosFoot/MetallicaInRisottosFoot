@@ -25,7 +25,3 @@ me btw
 thats it i think check rentry for more
 
 </details>
-
-![](https://i.ibb.co/35VNfTsP/image-2026-07-12-194704291.png)
-
-chud sons ^^
