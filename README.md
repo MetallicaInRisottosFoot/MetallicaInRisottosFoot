@@ -10,7 +10,7 @@
 
 <summary> about me (click) </summary>
 
-if u found me through this github i prefer to be called risotto, but i also go by sacred and a bunch of other names that are scattered across , pronouns r whatever
+i go by sacred and a bunch of other names that are scattered across , pronouns r whatever
 
 taken by my !!!!!!husband dont be weird ok
 
@@ -18,10 +18,6 @@ i dont have a huge dni but dooo NOT interact if you use sch*zo casually , its a 
 
 i block freely ok?ok!
 
-![](https://i.ibb.co/s959Pfp4/risottooooo-1.png)
-
-me btw
-
-thats it i think check rentry for more
+thats it i think check rentry or whatevers linked for more
 
 </details>
