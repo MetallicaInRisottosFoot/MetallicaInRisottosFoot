@@ -10,7 +10,7 @@
 
 <summary> about me (click) </summary>
 
-i go by sacred and a bunch of other names that are scattered across , pronouns r whatever
+i go by sacred and a bunch of other names that are scattered across , pronouns r whatever i want them to be whenever
 
 taken by my !!!!!!husband dont be weird ok
 
