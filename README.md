@@ -12,7 +12,7 @@
 
 i go by sacred and a bunch of other names that are scattered across , pronouns r whatever i want them to be whenever
 
-taken by my !!!!!!husband dont be weird ok
+taken by my !!!!!!husbandwifepartner allthethings dont be weird ok
 
 i dont have a huge dni but dooo NOT interact if you use sch*zo casually , its a slur towards schizospec people and most people who throw it around on here are probably NOT !! schizospec , also if you use calling someone schizophrenic as an insult or a joke ,ultra woke but its disrespectful lmaoo!!
 
