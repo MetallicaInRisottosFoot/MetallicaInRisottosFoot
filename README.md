@@ -8,8 +8,6 @@
 
 nominated for ponytowns risotto nero on [THE-TEMPIST](https://github.com/THE-TEMPIST) (thankyou to my partner for nominating me)
 
-![](https://files.catbox.moe/ra53gk.gif)
-
 <details>
 
 <summary> about me (click) </summary>
